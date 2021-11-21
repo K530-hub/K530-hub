@@ -8,8 +8,6 @@
 
 Hey there 👋
   
-I'm Daniel, quite a creative person.
-  
 
 
 
